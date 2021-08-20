@@ -1,1 +1,0 @@
-# basit.github.io
